@@ -14,3 +14,4 @@
 
 С наилучшими пожеланиями,
 ANASTAS SMEKH  
+![Пример изображения](https://media.licdn.com/dms/image/C4D03AQHmEyzaaZRTXA/profile-displayphoto-shrink_800_800/0/1650119551448?e=2147483647&v=beta&t=CY1y_EABzE2v6NX9AbnQ8PXmEdicJrL1FRzzQoyw01I)
